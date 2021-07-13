@@ -3,13 +3,30 @@
 vtipné výsledky generátoru ↓↓↓
 
 *
+vánoční                                                                                                                                
+dobrůtkami  mám  společně  dobrůtkami                                                                                                  
+dobrůtkami  bylo  šesťáky.  například                                                                                                  
+lepší,  kolegům,  spousta  našich                                                                                                      
+řešili  vánoční  dnešní  dílničky    
+*
+
+*
+V                                                                                                                                      
+přichází  žáci  ročníku  od                                                                                                            
+6.  resp.  –  do                                                                                                                       
+ročníku  a  jak  rodiče,                                                                                                               
+zůstává  všechny  nošení  budovy,                                                                                                      
+–  výuku  konzumace  použití   
+*
+
+*
 4.                                                                                                                                                                                 
 teké na jak již                                                                                                                                                                    
 již navedeme, classroomu, kalendáři                                                                                                                                                
 1. ale má Kočová,         
-
 *
 
+*
 klesat                                                                                                                                 
 Milí rodiče poděkovat moc                                                                                                              
 a i dle jak                                                                                                                            
